@@ -19,4 +19,4 @@
 如果你曾为寻找日本AV免费资源而多次失望，那就请收藏本站。我们不承诺花哨的功能，但承诺——每一次点击，都是真正的内容；每一次观看，都值得信任。让我们成为你长期稳定的日本AV资源站，让观影回归纯粹和自由。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/nn55236/54503 ）</span>
